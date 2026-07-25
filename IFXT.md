@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 14时30分23秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>企业债券融资利率大幅下行，直接融资占比进一步提升</h3><br><p>春节档票房创历史新高，影视传媒板块集体走强。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>思源电气涨超4.5%，电网设备出口数据亮眼</h3><br><p>生物医药产业创新政策，CXO板块全线异动。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>定向降息支持制造业高端化，工业母机板块获定向利好</h3><br><p>葡萄牙经济增速达2.3%，旅游业持续拉动增长。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>外资单日扫货招商银行10亿，银行龙头外资持仓稳步提升</h3><br><p>超170家机构到访PCB龙头，AI服务器板订单同比翻倍。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>大股东承诺6个月内不减持氢能标的，释放稳定股价信号</h3><br><p>机构资金净买入宁德时代12亿，核心资产获大资金加仓。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>游戏版号常态化发放，游戏板块持续异动</h3><br><p>存款利率下调推动理财收益率下行，权益基金发行回暖。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>江淮汽车与华为合作：传统车企与科技巨头的协同价值</h3><br><p>全国体育彩票年销量突破5000亿元，公益金助力民生事业。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>华域汽车涨超3.9%，汽车零部件龙头业绩超预期</h3><br><p>机构资金联手买入浪潮信息3.3亿，AI服务器龙头获机构抱团。<br><br> | 来源：<code>www.shutaotc.cn
+</code></p><br><br><h3>全面降准叠加LPR下调，市场流动性环境显著优化</h3><br><p>AI应用落地加速：办公、安防、教育的商业化机会。<br><br> | 来源：<code>www.easome.cn
+</code></p><br><br><h3>三一重工涨超4.1%，海外工程机械订单高增</h3><br><p>黄金价格创历史新高，黄金珠宝板块盈利弹性释放。<br><br> | 来源：<code>www.toolzhe.cn
+</code></p><br><br><h3>旅游年卡覆盖超200城，一票通玩激活本地休闲消费</h3><br><p>A股总市值突破90万亿元，资本市场改革红利持续释放。<br><br> | 来源：<code>www.silvertimes.cn
+</code></p><br><br><h3>三一重工数字化转型：工程机械龙头的效率提升路径</h3><br><p>知名私募大手笔增持乳制品龙头，持仓占比达3.5%。<br><br> | 来源：<code>www.ahhaiquan.cn
+</code></p><br><br><h3>中国男子帆船队亚运会夺冠，水上项目实现新突破</h3><br><p>白银价格单月上涨12%，贵金属板块集体异动。<br><br> | 来源：<code>www.3excel.cn
+</code></p><br><br><h3>中国五子连珠队世界杯包揽全部金牌，优势项目无人能敌</h3><br><p>登海种业放量上涨4.0%，玉米种子需求持续向好。<br><br> | 来源：<code>www.81988888.cn
+</code></p><br><br><h3>海康威视W底形态确立，底部反转信号明确</h3><br><p>中国国际象棋队世锦赛包揽全部金牌，智力运动世界第一。<br><br> | 来源：<code>zhongyichufang.cn
+</code></p><br><br><h3>云南泼水节暑期活动重启，单日参与游客突破50万人次</h3><br><p>日本央行结束负利率政策，日元汇率回升至130关口。<br><br> | 来源：<code>muzhien.cn
+</code></p><br><br><h3>华为星闪技术大规模商用，相关产业链标的领涨</h3><br><p>中国平安权重护盘，大金融板块托底A股指数。<br><br> | 来源：<code>jiezhishan.cn
+</code></p><br><br><h3>全球元宇宙相关产业规模突破2万亿美元，应用场景拓展</h3><br><p>招商银行放量上涨3.0%，净息差边际企稳。<br><br> | 来源：<code>qinjin365.cn
+</code></p><br><br><h3>教育部发布新规，义务教育阶段课后服务实现全覆盖</h3><br><p>北京建工放量上涨3.0%，京津冀基建项目落地加速。<br><br> | 来源：<code>siqiyes.cn
+</code></p><br><br><h3>中国铁建全球工程布局：轨交基建龙头的海外市场拓展</h3><br><p>蔚来汽车毛利率转正，单季业绩预告环比大幅改善。<br><br> | 来源：<code>siqixue.cn
