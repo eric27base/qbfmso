@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 14时31分35秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>双汇发展异动拉升2.9%，肉制品盈利边际改善</h3><br><p>3D生成大模型技术突破，1分钟生成高精度工业模型。<br><br> | 来源：<code>guoguangjixie.cn
+</code></p><br><br><h3>养老金新进光伏逆变器标的，海外市占率提升获长期配置</h3><br><p>中国短道速滑队世锦赛斩获4金，新老交替完成实力回升。<br><br> | 来源：<code>bieyao.cn
+</code></p><br><br><h3>美联储宣布降息25BP，全球权益资产迎来估值修复窗口</h3><br><p>科大讯飞星火大模型V5.0发布，语音识别准确率突破99.8%。<br><br> | 来源：<code>zhongyaolu.cn
+</code></p><br><br><h3>生活用纸价格上调4%，生活用纸龙头盈利提升</h3><br><p>国内音乐节市场爆发，上半年演出场次同比增长150%。<br><br> | 来源：<code>ykyxz.cn
+</code></p><br><br><h3>全国东北虎种群数量突破70只，野生虎栖息地持续扩大</h3><br><p>料酒价格上涨4%，调味品细分板块迎来行情。<br><br> | 来源：<code>mlxtf.cn
+</code></p><br><br><h3>生活用纸价格上调4%，生活用纸龙头盈利提升</h3><br><p>全球绿色建筑市场规模突破3万亿美元，低碳建筑普及。<br><br> | 来源：<code>tupianqiang.com
+</code></p><br><br><h3>国际黄金价格回升至2100美元/盎司，避险需求再度升温</h3><br><p>香港高校内地招生扩容500名额，新增大湾区相关特色专业。<br><br> | 来源：<code>hsronghua.com
+</code></p><br><br><h3>海康威视AI转型进展：传统安防龙头的第二成长曲线</h3><br><p>多氟多六氟磷酸锂布局：锂电材料细分龙头的周期成长。<br><br> | 来源：<code>dygs2b.com
+</code></p><br><br><h3>存款利率市场化调整机制优化，银行负债端成本进一步压降</h3><br><p>央行下调再贷款利率，精准支持科技创新领域。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>大秦铁路异动拉升2.8%，煤炭运输量稳步提升</h3><br><p>矿产资源勘探政策，地质勘查标的全线异动。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>全国"三北"防护林工程年度任务完成，筑牢北方生态屏障</h3><br><p>国内首款7nm芯片量产，先进制程产业链异动。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>锰价上涨8%，锰酸锂材料板块迎来行情</h3><br><p>紫光国微异动拉升5.6%，特种芯片需求持续高增。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>全国旅游厕所建设完成，所有景区实现第三卫生间全覆盖</h3><br><p>别把运气当成能力：短期靠运气赚的钱，迟早会凭实力亏回去。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>券商研究所扎堆调研算力租赁标的，机柜上架率突破95%</h3><br><p>紫金矿业沿5日均线上行，趋势行情下的持仓策略。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>山东"三孔"景区暑期接待游客超200万人次，传统文化游升温</h3><br><p>海外对冲基金集中调研CXO龙头，新签订单增速超预期。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>沪股通席位单日买入美的集团2.1亿，家电龙头获外资增持</h3><br><p>地产链政策宽松预期：房企、家居、建材的轮动机会梳理。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>药明康德单日涨超5%，CXO板块迎来情绪拐点</h3><br><p>美联储降息后美债收益率下行，外资回流中国权益市场。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>游资知名席位联手买入中国船舶2亿，造船标的获资金追捧</h3><br><p>亿纬锂能放量上涨6.4%，储能电池出货量翻倍。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>知名私募调研钙钛矿设备标的，核心设备交付周期缩短</h3><br><p>全国危险废物处置能力突破2亿吨/年，安全处置率100%。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>当升科技涨超5.1%，正极材料海外订单增长</h3><br><p>央行逆回购操作利率下调，短期资金面维持宽松。<br><br> | 来源：<code>www.michaelyang.cn
