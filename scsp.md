@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分37秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>企业贷款利率创历史新低，制造业投资意愿有望回升</h3><br><p>广州珠江夜游暑期航班加密，日均接待游客超5万人次。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>存款利率迎来新一轮下调，银行板块短期承压负债端改善</h3><br><p>国内大模型评测标准发布，统一行业能力评估体系。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>东方电缆海缆技术壁垒：海上风电海缆龙头的领先地位</h3><br><p>外资机构集中调研跨境支付标的，海外结算规模环比大增。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>北京冬奥场馆全年接待人次破2000万，冰雪运动持续普及</h3><br><p>黄山暑期单日客流破4万，山顶酒店提前半个月售罄。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>万科A异动拉升3.6%，核心城市楼盘去化率改善</h3><br><p>大模型轻量化部署方案成熟，中小企业接入成本下降90%。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>沪股通席位单日买入美的集团2.1亿，家电龙头获外资增持</h3><br><p>央行加大公开市场操作力度，资金面维持平稳宽松。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>特变电工多晶硅布局：新能源全产业链的协同成长逻辑</h3><br><p>哪吒汽车涨超7.3%，下沉市场份额持续提升。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>存量房贷利率批量下调，银行板块短期冲击可控</h3><br><p>甘肃建投涨超3.0%，一带一路西北基建项目推进。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>控股股东耗资3亿增持汽车电子标的，回购股份用于股权激励</h3><br><p>企业贷款利率创历史新低，制造业投资意愿有望回升。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>沪硅产业硅片国产替代：12英寸大硅片的产能释放逻辑</h3><br><p>降准降息组合利好地产链，建材板块迎来估值修复。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>国家统计局发布新动能指数，同比增长17%创新高</h3><br><p>保利发展土储优势：核心城市优质土储的长期价值释放。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>全国居民人均体育消费支出同比增长15%，运动成为生活方式</h3><br><p>全国臭氧浓度同比下降5%，夏季蓝天数量明显增加。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>知名私募调研量子通信标的，干线网络建设落地节奏披露</h3><br><p>央行下调MLF利率10BP，货币政策宽松力度加大。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>城市漫步Citywalk成新潮流，相关搜索量同比暴涨300%</h3><br><p>恒瑞医药研发管线复盘：从仿制药龙头到创新药巨头的蜕变。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>北向资金连续加仓赣锋锂业，锂矿龙头获外资持续流入</h3><br><p>京沪高铁路网资产价值：核心高铁线路的长期盈利逻辑。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>NBA总决赛凯尔特人4-2夺冠，塔图姆全票当选FMVP</h3><br><p>北向资金单日净流入超150亿，降息后外资加速入场。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>贵州茅台前三季度营收破千亿，业绩预告超预期</h3><br><p>招商银行股价修复，银行板块高股息属性获资金青睐。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>全国城市慢行系统建设提速，绿道总里程突破15万公里</h3><br><p>国内演出市场票房上半年突破200亿，演唱会经济爆发。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>中德经贸论坛举办，双方达成百项合作协议</h3><br><p>上半年全国集成电路产量同比增长18%，产业链自主可控推进。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>大模型在物流领域应用，路径规划效率提升30%</h3><br><p>外资机构集中调研种业龙头，转基因商业化落地节奏披露。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>降准降息组合拳落地，大金融板块率先迎来行情催化</h3><br><p>全国珠江流域生态补水工程启动，流域生态流量保障达标。<br><br> | 来源：<code>www.jieruit.com
