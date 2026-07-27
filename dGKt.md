@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分58秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>主题乐园暑期游客量突破1亿人次，IP衍生消费持续增长</h3><br><p>央行表态适时加大政策力度，后续降准降息仍有空间。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>中国船舶全球竞争力：造船行业龙头的订单与盈利展望</h3><br><p>国产综艺节目海外版权输出量同比增长60%。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>巴西经济复苏，二季度农业工业双增长</h3><br><p>上半年全国机器人产量同比增长25%，智能制造加速推进。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>产业资本连续增持储能温控龙头，产业链上下游协同布局</h3><br><p>武汉马拉松开跑，2.5万跑者穿越长江大桥刷新赛事纪录。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>国内AI伦理规范发布，引导大模型健康有序发展</h3><br><p>机构+北向合力买入山西汾酒1.7亿，清香白酒龙头获资金布局。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>新疆交建一带一路优势：新疆区域基建的长期成长逻辑</h3><br><p>机构资金集中买入科大讯飞7亿，AI龙头获机构抱团。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>央行加大公开市场操作力度，资金面维持平稳宽松</h3><br><p>“双减”成效显著，校外违规培训机构清零率超98%。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>石大胜华溶剂技术优势：锂电溶剂细分赛道的龙头价值</h3><br><p>天齐锂业锂价反弹，单季业绩预告环比大增。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>猪肉价格连续反弹20%，生猪养殖板块迎来趋势性行情</h3><br><p>多地发放消费券超200亿元，撬动社会消费超千亿元。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>海上风电深远海规划，深远海风电板块集体上涨</h3><br><p>存款利率迎来新一轮下调，银行板块短期承压负债端改善。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>北方稀土异动拉升，稀土永磁行业供需格局优化</h3><br><p>深股通席位单日买入圣邦股份7500万，模拟芯片标的增持。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>头部机构组团到访医美耗材龙头，新品获批进度超预期</h3><br><p>全球机器人装机量突破500万台，工业自动化加速普及。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产</h3><br><p>海天味业调味品渠道优势：国内调味品龙头的下沉网络。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全国朱鹮种群数量突破1万只，从7只恢复至广泛分布</h3><br><p>全国体育产业总规模上半年突破3.5万亿元，占GDP比重提升。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>新希望异动拉升3.9%，生猪出栏量持续高增</h3><br><p>大消费板块估值修复：白酒、家电、医药的布局机会对比。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>光伏组件出口创历史新高，光伏海外链标的走强</h3><br><p>首套房贷款利率突破2.9%，刚需购房成本创历史新低。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>复合肥价格上调7%，化肥全产业链盈利优化</h3><br><p>上半年进出口总额同比增长4.2%，外贸韧性持续凸显。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>亨通光电海缆业务放量，前三季度业绩预增超45%</h3><br><p>北约峰会发布新战略文件，调整东翼防御部署。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>润和软件鸿蒙生态布局：国产操作系统的商业化空间测算</h3><br><p>量子信息产业规划发布，量子通信标的全线拉升。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>制造业PMI连续6个月位于扩张区间，行业景气度持续回升</h3><br><p>重庆洪崖洞暑期日均游客量突破25万人次，网红城市持续火爆。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>国家发改委出台促消费20条新政，重点支持汽车家电消费</h3><br><p>游资顶级席位打板亨通光电5400万，海缆标的获热炒。<br><br> | 来源：<code>www.yinxi.net
