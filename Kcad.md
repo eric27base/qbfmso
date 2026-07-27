@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分55秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>洋河股份梦之蓝品牌升级：次高端赛道的份额扩张逻辑</h3><br><p>燃料电池汽车示范应用，燃料电池标的全线异动。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>张伟丽卫冕UFC女子草量级冠军，成功守住金腰带</h3><br><p>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>恒力石化炼化一体化布局：民营大炼化龙头的盈利韧性</h3><br><p>全球5G用户突破30亿，中国市场占比超一半。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>游资顶级席位打板梅花生物5200万，氨基酸标的获热炒</h3><br><p>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>三一重工涨超4.1%，海外工程机械订单高增</h3><br><p>风电行业景气度回升：整机、零部件的盈利改善逻辑。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>机构专用席位净买入容百科技8800万，高镍正极龙头加仓</h3><br><p>全国祁连山生态保护修复完成，矿区全部恢复植被覆盖。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>全国金丝猴种群数量突破4万只，多个栖息地生态改善</h3><br><p>券商研究所扎堆调研算力租赁标的，机柜上架率突破95%。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>知名私募调研低空飞行器标的，eVTOL适航认证进度披露</h3><br><p>包装纸价格上涨5%，包装板块成本端压力传导顺畅。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>西部大开发新十年规划发布，补齐区域发展短板</h3><br><p>北京中轴线申遗进入冲刺阶段，千年古都风貌全面保护。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>海洋牧场建设规划，海洋渔业板块集体上涨</h3><br><p>东方盛虹EVA树脂优势：光伏胶膜原料龙头的景气受益。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>山西路桥放量上涨3.2%，山西交通基建投资加码</h3><br><p>中芯国际放量拉升7.1%，半导体国产替代逻辑再强化。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先</h3><br><p>外资资管连续加仓跨境支付标的，近3月持仓占比提升至6%。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>卫星互联网星座加速组网，低轨卫星板块全线走强</h3><br><p>央行宣布全面降准0.5个百分点，释放长期资金超万亿。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>全国碳排放权交易市场成交额突破200亿元，碳定价机制完善</h3><br><p>体育赛事与全民健身（100条）。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>鸭肉价格上涨12%，水禽养殖板块迎来行情</h3><br><p>闻泰科技异动拉升4.9%，半导体ODM业务盈利修复。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>机构资金集中买入牧原股份2.5亿，养殖龙头获机构抱团</h3><br><p>央行加大结构性降息力度，精准支持数字经济领域。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>阿里云通义千问算力集群扩容，支撑万亿级参数大模型训练</h3><br><p>海外对冲基金组团调研白酒区域龙头，省外扩张增速曝光。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>闻泰科技异动拉升4.9%，半导体ODM业务盈利修复</h3><br><p>大金重工塔筒出口翻倍，单季业绩预告超预期。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>澜起科技内存接口芯片优势：全球细分赛道的龙头价值</h3><br><p>央行表态适时加大政策力度，后续降准降息仍有空间。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>理想汽车涨超8.5%，L系列车型月销破4万</h3><br><p>英伟达发布新一代AI芯片，算力板块再度走强。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>海大集团涨超3.5%，饲料业务市占率稳步提升</h3><br><p>生活用纸价格上调4%，生活用纸龙头盈利提升。<br><br> | 来源：<code>www.79lr.com
